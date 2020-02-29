@@ -1,3 +1,3 @@
 # collab-project
 
-prut mig i øret
+sut numse
